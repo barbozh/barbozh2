@@ -7,3 +7,5 @@ Sou familiarizado com diversos tipos de códigos, como: Lua script, Java, JavaSc
 
 ![](https://media.tenor.com/BBu0pESyagQAAAAM/gerson-bater-porrada-hit-varela.gif).
 ![](https://media.tenor.com/prr3beWewrEAAAAM/gym-cap.gif)
+![](https://media.tenor.com/-WJZMWuiy38AAAAM/bom-dia-valtatu%C3%AD-bom-dia.gif)
+![](https://media.tenor.com/hrHgH7vCBtMAAAAM/tatum-jayson-tatum.gif)
